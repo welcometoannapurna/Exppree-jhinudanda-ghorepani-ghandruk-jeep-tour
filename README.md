@@ -1,1 +1,1 @@
-# Exppree-jhinudanda-ghorepani-ghandruk-jeep-tour
+# Exploree-jhinudanda-ghorepani-ghandruk-jeep-tour
